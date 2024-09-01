@@ -10,6 +10,12 @@ Assistir! Divertida Mente 2 Onl𝚒ne Gratis - 2024 - Filme Dublado Legendado As
 <p dir="auto"><a href="https://cutt.ly/6eoKl5o0" title="PLAY NOW" rel="nofollow"><img src="https://i.imgur.com/jhNGoEt.gif" style="max-width: 100%;"></a></p>
 
 26 de Agosto de 2024 No cinema | 1h 55min | Ação, Fantasia, Ficção Científica
+Vídeo tutorial de como fazer para assistir.
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/R1jI_bK6tDo?si=SXJrfgRYe99oK7UV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FvppdD9kPyg?si=pW9UHRnSby1NJ6aU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
 
 Direção: Adam Wingard | Roteiro Terry Rossio, Simon Barrett.
 
